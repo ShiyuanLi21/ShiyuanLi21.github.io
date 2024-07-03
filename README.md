@@ -1,1 +1,1 @@
-# HI, I'm Shiyuan!
+# Hi, I'm Shiyuan!
